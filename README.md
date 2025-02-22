@@ -1,2 +1,2 @@
-# agbaraolrunpo
-Data Analyst, Soft Ware Developer
+# Agbaraolorunpo
+Data Analyst,Digital content creator and blogger
